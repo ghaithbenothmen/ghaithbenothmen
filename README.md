@@ -3,6 +3,8 @@
 
 - 🔭I'm always **learning new technologies**
 
+- 🤝 I'm open to **collaborating on web and android apps**
+
 - 📫 How to reach me **ghaithbenothmen8@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1o0JdPfleKy3LNY3aDIWdqaH71Q8jwWWH/view?usp=drive_link](https://drive.google.com/file/d/1o0JdPfleKy3LNY3aDIWdqaH71Q8jwWWH/view?usp=drive_link)
