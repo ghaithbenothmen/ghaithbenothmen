@@ -7,7 +7,7 @@
 
 - 📫 You can contact me at **ghaithbenothmen8@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1o0JdPfleKy3LNY3aDIWdqaH71Q8jwWWH/view?usp=drive_link](https://drive.google.com/file/d/1o0JdPfleKy3LNY3aDIWdqaH71Q8jwWWH/view?usp=drive_link)
+- 📄 Know about my experiences [BEN_OTHMEN_Ghaith_CV](https://drive.google.com/file/d/1t2TxAFadKWCtYvG4BRUhmx4TaXFpE-xm/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
